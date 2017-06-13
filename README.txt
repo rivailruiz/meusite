@@ -1,1 +1,0 @@
-Site pessoal criado por RivailRuiz.
